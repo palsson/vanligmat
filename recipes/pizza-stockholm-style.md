@@ -53,6 +53,19 @@ Det blir inte alltid så bra, särskilt inte när degen är ny. Det blir enklare
 
 Om degen är kladdig, doppa fingrarna i vatten för att degen inte ska fastna (så mycket).
 
+### Dags att äta
+
+1. Sätt ugnen på varmaste, lägg in pizzastenen i mitten av ugnen. Det tar en timme för att stenen ska bli varm.
+2. Sätt ungen på "grill stor yta".
+3. Baka ut degen på ett lätt mjölat bakplåtspapper. För att baka ut:
+    1. Ta upp degen ur bunken, lägg den med ovansidan neråt på bakplåtspappret. Tryck ett lätt horisontellt sträck över degen, låt det bli en kant på 1-2 cm.
+    2. Ta upp degen och ha ovansidan från dig, låt gravitationen dra ut degen, lägg den ev över knuten hand (med undersidan på handen). Lägg ner den på bakplåtspappret och forma till den. Var försiktig. Det är bättre att den blir lite oregelbunden med bra kanter än att den blir för tunn och går sönder.
+4. Lägg på toppings.
+5. In i ugnen (dra pizzan på en skärbräda, dra pizzan på stenen).
+6. Pizzan blir klar på ca 5 minuter. Ta ut när den är snygg och lägg den på ett galler (fortfarande på samma bakplåtspapper).
+7. Lägg på sista toppings.
+8. Dela och servera.
+
 ## Mer info
 
 - Pizza Wizard, Oskar Montano
